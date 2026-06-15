@@ -38,5 +38,5 @@ I am an **Electrical and Electronics Engineering (EEE)** student at the **Nation
 
 
 ### 📫 Connect with Me
-* **LinkedIn:** www.linkedin.com/in/k-sri-chandan-ashrith-19s2005
+* **LinkedIn:** www.linkedin.com/in/srichandan195
 * **Email:** srichandan195@gmail.com
